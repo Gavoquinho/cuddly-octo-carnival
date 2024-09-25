@@ -1,1 +1,1 @@
-texto um para teste da aula
+texto um para teste da escola
